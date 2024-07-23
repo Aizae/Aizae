@@ -1,0 +1,4 @@
+- 👋 Hello friends of all grey hat black hat but mainly white
+- im here to change the WoRLD snd I WILL
+- HIT ME up for allinnoavtive suggestions
+- I will wanna change Esport and make facial recongition not something to fear but something to embrace
